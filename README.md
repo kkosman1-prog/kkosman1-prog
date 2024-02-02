@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kkosman1-prog
-- 👀 I’m interested in nothing
+- 👀 I’m interested in ichwill
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on you
 - 📫 How to reach me ypu cant reach me im on top
